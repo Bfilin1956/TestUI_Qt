@@ -17,8 +17,6 @@
 ---
 ![ezgif-4-6d4e5e2706](https://github.com/user-attachments/assets/3f0e0087-40d6-494b-9371-3a2793e3a0ab)
 ---
-![Снимок экрана 2024-12-26 061631](https://github.com/user-attachments/assets/917c5bcb-860a-4d4f-969f-cfebc25802de)
----
 ![Снимок экрана 2024-12-26 061639](https://github.com/user-attachments/assets/c5d10740-c914-46c3-813c-452e10f67aed)
 ---
 ![Снимок экрана 2024-12-26 061644](https://github.com/user-attachments/assets/96626b25-0e64-4d2f-8e50-9f90976dcdfc)
